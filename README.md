@@ -1,4 +1,4 @@
-![WhatsApp Image 2023-09-07 at 6 17 23 PM](https://github.com/kumar815/kumar815/assets/110323876/2a0e9f4c-c483-434e-83a9-51c467b9b073)
+
 ![images](https://github.com/kumar815/kumar815/assets/110323876/daa3c7a9-2e8b-4c6c-bfe4-4887b7ed3d75)
 ![Capture1](https://github.com/kumar815/kumar815/assets/110323876/c8729fe7-2fde-4a5a-94ce-13ef78b23ca6)
 ![Capture2](https://github.com/kumar815/kumar815/assets/110323876/947c1e6d-6933-4fe2-b224-880216e7c66f)
